@@ -1,2 +1,1 @@
-# NewLauncher
- https://samp-mobile.online samp source code
+# FREE OPEN SOURCE 
